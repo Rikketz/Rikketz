@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **Email: jesussavi88@gmail.com || Discord: Rikketz**
 
-- ⚡ Fun fact **Did you know that I firmly believe cheese is the greatest invention in human history? From creamy Brie to tangy Cheddar, cheese adds that extra bit of joy to life! 🧀 #CheeseLover**
+- ⚡ Fun fact: **Did you know that I firmly believe cheese is the greatest invention in human history? From creamy Brie to tangy Cheddar, cheese adds that extra bit of joy to life! 🧀 #CheeseLover**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
